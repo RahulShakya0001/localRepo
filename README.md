@@ -1,5 +1,3 @@
-Ye hai apni file Ok 
-Or bhai ke haal
-<br>
-gana ni bhai 
-Ye tho modify kiya hai 
+Baat sun madam je yaraa khatar gani \n
+tein tein kari ne tho tere bhi tek diya ge
+thik s
